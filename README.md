@@ -12,5 +12,5 @@ jean.cafisso@escola.pr.gov.br
 
 j_cafisso
 
-![.](https://media1.tenor.com/m/_lN0aRe0wNoAAAAC/tori-gpo.gif
+![.](https://media1.tenor.com/
 
